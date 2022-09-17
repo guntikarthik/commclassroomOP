@@ -1,3 +1,2 @@
 -  Kunal you are so inspirational 
--  You are making so many like me to follow your foot steps become successful like you.
--  Thank you for everything brother
+-  You are helping so many students and making them choose right path for their career.ZZZ
